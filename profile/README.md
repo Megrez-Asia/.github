@@ -16,7 +16,7 @@ We transform healthcare research and innovations into market-ready products thro
 ## Contact Us
 If you have any questions, feedback, or inquiries, please feel free to reach out to us. You can contact us through the following channels:
 
-* Website: [https://www.tukutoi.com](https://megrez.asia/services/)
+* Website: [https://www.megrez.asia.com](https://megrez.asia/services/)
 * Email: general@megrez.asia
 * LinkedIn: [Megrez Asia](https://www.linkedin.com/company/megrez-translations/?originalSubdomain=sg)
 * Instagram: [Megrez Asia](https://www.instagram.com/megrez.asia/)
